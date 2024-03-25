@@ -8,3 +8,6 @@
   	<a href="https://rentry.co/gumball](https://batjokes.123guestbook.com/)https://batjokes.123guestbook.com/">Guestbook</a> 
 </p>
 
+<p align="center">
+	art by ahin_vpv
+</p>
