@@ -5,7 +5,7 @@
 <p align="center">
     <a href="https://rentry.co/gumball">Rentry</a> 
 	  <a href="">+</a>
-  	<a href="https://rentry.co/gumball](https://batjokes.123guestbook.com/)https://batjokes.123guestbook.com/">Guestbook</a> 
+  	<a href="https://batjokes.123guestbook.com/">Guestbook</a> 
 </p>
 
 <p align="center">
