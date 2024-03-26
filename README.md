@@ -3,11 +3,11 @@
 </p>
 
 <p align="center">
-    <img src="https://github.com/apongclown/apongclown/assets/160689432/8853ddba-cf52-44e7-b92b-a868f644adb9" /> 
+    <img src="https://watermelon.crd.co/assets/images/gallery01/246297f6.gif?v=2a41aca3" /> 
 	<a href="https://rentry.co/gumball">Rentry</a> 
 	  <a href="">+</a>
   	<a href="https://batjokes.123guestbook.com/">Guestbook</a> 
-	 <img src="https://github.com/apongclown/apongclown/assets/160689432/8853ddba-cf52-44e7-b92b-a868f644adb9" /> 
+	 <img src="https://watermelon.crd.co/assets/images/gallery01/246297f6.gif?v=2a41aca3" /> 
 </p>
 
 <p align="center">
