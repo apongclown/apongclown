@@ -1,16 +1,16 @@
 
 <p align="center">
-  <img src="https://file.garden/ZkXBY1mp3wv99LNI/IMG_5595.gif" alt="animation by miartyix" />
+  <img src="https://file.garden/ZkXBY1mp3wv99LNI/James%20Barnes%20_%20Winter%20Soldier.jpg" alt="animation by miartyix" />
 </p>
 
 <p align="center">
-    <img src="https://64.media.tumblr.com/788facaa897b4fd41c0de277a8312e67/4720c94c0b561795-63/s75x75_c1/1e7fb10b381fdf60f4ee7005d21073c9d3b52e8c.gifv" /> 
+    <img src="https://i.ibb.co/vYzQjfj/IMG-8019.gif" /> 
 	<a href="https://rentry.co/gumball">Rentry</a> 
-	 <img src="https://64.media.tumblr.com/788facaa897b4fd41c0de277a8312e67/4720c94c0b561795-63/s75x75_c1/1e7fb10b381fdf60f4ee7005d21073c9d3b52e8c.gifv" /> 
+	 <img src="https://i.ibb.co/vYzQjfj/IMG-8019.gif" /> 
 </p>
 
 <p align="center">
-	animation by miartyix
+	art by kkron_m
 </p>
 
 <p align="center">
